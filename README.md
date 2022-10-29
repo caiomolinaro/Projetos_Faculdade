@@ -1,0 +1,1 @@
+Seja bem vindo aqui vai ficar todos os projetos que desenvolvi e estudei ao longo do curso junto com projetos próprios de estudo
